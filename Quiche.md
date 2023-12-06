@@ -16,7 +16,7 @@ Tags: Vegerarian
 1. Oven to 180°C
 2. Break eggs into mixing bowl, mix lightly
 3. Mix in cheese, milk, ground black pepper
-4. Put sheet of pastry into quiche form, cut away excess and save for now
+4. Put sheet of pastry into quiche form, cut away excess and save for now. If anything doesn't fit right, treat the pastry like clay and you're in a school pottery lesson (squeeze it together and blend with finger)
 5. Put thin layer of mixed dairy ingredients into base
 6. Halve the cherry tomatoes, place them onto the layer
 7. Add some of the cut-away excess pastry
