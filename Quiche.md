@@ -1,7 +1,5 @@
 # Quiche
 
-Tags: Vegerarian
-
 ## Ingredients
 
 * Pastry sheet
@@ -23,3 +21,7 @@ Tags: Vegerarian
 8. Add more layers of dairy and pastry until it's full
 9. Put any excess pastry on top
 10. Bake for about 17 minutes
+
+## Tags
+
+Vegerarian
