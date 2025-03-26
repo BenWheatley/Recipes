@@ -2,7 +2,8 @@
 
 ## Result, commentary, notes
 
-As written, nowhere near moist enough, needed one egg to bind, makes 8 cupcakes' worth
+* As written, nowhere near moist enough, needed one egg to bind
+* Makes 8 cupcakes' worth
 
 ## Ingredients
 
